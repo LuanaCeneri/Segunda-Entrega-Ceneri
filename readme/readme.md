@@ -1,0 +1,1 @@
+Este proyecto tiene esta dedicado a publicitar un emprendimiento llamado Piccola que se dedica a vender Velas y productos de decoracion.
